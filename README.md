@@ -1,0 +1,1 @@
+# Extracao-Noticias-2023.2
